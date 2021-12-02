@@ -1,1 +1,3 @@
-# pomegranate0.github.io
+# please leave
+minecraft server
+`mc.pgr.pw`
